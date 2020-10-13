@@ -1,4 +1,4 @@
-# Marrione Nguyen -- @itsrheine
+# Rheine N. -- @itsrheine
 Hi, I'm Rheine.
 
 # Get in touch
