@@ -1,2 +1,2 @@
-# Rheine N. -- @itsrheine
+# Rheine Nguyen -- @itsrheine
 Hi, I'm Rheine.
